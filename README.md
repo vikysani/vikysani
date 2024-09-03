@@ -3,4 +3,4 @@ I am Victoria from Chile living in Germany
 
 🌱 I’m currently learning UX/UI and all about new platforms
 
-Happy for the new IT world adventure 
+Happy for the new IT adventure 
